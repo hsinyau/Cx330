@@ -1,3 +1,1 @@
-2022-03-19T07:37:00+08:00
-随机数:96503
-提交次数:4460
+The star CX330 is growing rapidly in the desert space of the Milky Way, far from any other known celestial body. It has neither stars as neighbors nor planets as companions, lonely and rare.
